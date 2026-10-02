@@ -5,7 +5,7 @@
 
 
 ## 2. GitHub 連結
-
+https://github.com/chengyou1126/-1151VR-HW2-414262040-HSIEH-CHENG-YU/blob/main/README.md
 
 
 ## 3. YouTube 連結
